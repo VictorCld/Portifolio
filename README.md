@@ -33,7 +33,7 @@ Acredito que a tecnologia deve ser acessível e resolver problemas reais.
 
 Estou sempre aberto a novas oportunidades e parcerias. Se quiser conversar, será um prazer!
 
-- ✉️ Email: [gabrielvghs666@gmail.com]
+- ✉️ Email: [victorgabrielcc22@gmail.com]
 - 💼 LinkedIn: [linkedin.com/in/victor-gabrielcc-dev/](https://www.linkedin.com/in/victor-gabrielcc-dev/)
 
 ---
